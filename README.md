@@ -8,4 +8,4 @@
 
 
 3.
-![](https://yadi.sk/i/zDKED1UH3UDpyp)
+![](https://pp.userapi.com/c846419/v846419809/1db4b/ddolwPKyvQk.jpg)
