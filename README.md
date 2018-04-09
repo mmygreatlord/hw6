@@ -15,3 +15,6 @@ I. Google Ngram Viewer
 II. Sketch Engine
 
 1.![](https://pp.userapi.com/c846121/v846121093/1d577/fh9XGndeYuo.jpg)
+
+
+2.![](https://pp.userapi.com/c846121/v846121935/1c71a/-BeGs_U_wY8.jpg)
