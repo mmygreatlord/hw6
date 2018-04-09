@@ -18,4 +18,4 @@ II. Sketch Engine
 
 
 2.![](https://pp.userapi.com/c846121/v846121935/1c71a/-BeGs_U_wY8.jpg)
-Оба глагола могут употребляться со словами на белом фоне (anxiety, emphysema), с aggravate мы употребляем слова на зеленом фоне (burglary),
+Оба глагола могут употребляться со словами на белом фоне (anxiety, emphysema), с aggravate мы употребляем слова на зеленом фоне (burglary), а для exacerbate лучше использовать слова на красном фоне (symptom)
